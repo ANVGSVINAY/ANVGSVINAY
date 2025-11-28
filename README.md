@@ -57,7 +57,7 @@ More projects coming soon… 🚧
 
 ## 🔗 Connect with Me
 
-📍 **LinkedIn:** [Vinay Akana](https://www.linkedin.com/in/vinay-akana-1264632b6/)  
+📍 **LinkedIn:** [AKANA NAGA VENKATA GOWRI SHANKAR VINAY](linkedin.com/in/akana-naga-venkata-gowri-shankar-vinay-1264632b6)  
 🐙 **GitHub:** [ANVGSVINAY](https://github.com/ANVGSVINAY)  
 📧 **Email:** vinayakana321@gmail.com  
 
